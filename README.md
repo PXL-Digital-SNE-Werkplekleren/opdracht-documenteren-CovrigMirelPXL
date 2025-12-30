@@ -1,2 +1,3 @@
 ﻿# opdracht-documenteren-CovrigMirelPXL
-Plain Password: mireltechnova
+#Plain Password for all devices!!!!!!!!! : mireltechnova
+
